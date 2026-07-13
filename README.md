@@ -5,3 +5,4 @@
 - int freely, c+h freely.
 - willing to make friends, im shy tho
 - Anything you need to know? Just ask i like yapping at times - if u even care jk
+- saeyoung, wind archer, omori, hu tao enthusiast
